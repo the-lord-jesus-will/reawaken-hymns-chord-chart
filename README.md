@@ -1,1 +1,1 @@
-# reawaken-hymns-chord-chart
+https://the-lord-jesus-will.github.io/reawaken-hymns-chord-chart/
